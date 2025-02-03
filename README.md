@@ -10,11 +10,11 @@ Thangka originated in the Tubo period in the 7th century AD and is an indispensa
 
 ![image](https://github.com/user-attachments/assets/e479cef5-a2c5-49a4-9204-330a13ec5c59)
 
-# བལ་ཡུལ་གྱི་ཐང་ཀ་མཁས་པ་མཁས་དབང་ཀེ་སབ་(ལོ་62)།
+# བལ་ཡུལ་གྱི་ཐང་ཀ་མཁས་པ་མཁས་དབང་ཀེ་སབ་(ལོ་47)།
 
 # 尼泊爾唐卡大師Kesav師傅（47歲）
 
-# Nepal Thangka Master Kesav (42 years old)
+# Nepal Thangka Master Kesav (47 years old)
 
 
 ![image](https://github.com/user-attachments/assets/64e7a1ed-5e45-446a-af4e-a759f9088516)
