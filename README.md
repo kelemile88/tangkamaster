@@ -3,16 +3,16 @@
 
 ![image](https://github.com/user-attachments/assets/e479cef5-a2c5-49a4-9204-330a13ec5c59)
 
-尼泊爾唐卡大師Kesav師傅（47歲）
---
+# 尼泊爾唐卡大師Kesav師傅（47歲）
+
 ![image](https://github.com/user-attachments/assets/64e7a1ed-5e45-446a-af4e-a759f9088516)
---
+
 kesav師傅是尼泊爾老一輩的畫師，桑潔嘉措傳承人，他曾和前尼泊爾第一畫師Roj Lama是一個團隊的畫師（擔任首席開臉、描金師）後自己獨立出來，
 成為尼泊爾舉足輕重的畫師之一，Karma喇嘛,Pema沙彌等著名畫師都是他的學生
 現任尼泊爾噶瑪列些林高級佛學院校長
---
+
 ![image](https://github.com/user-attachments/assets/c7683e1e-03e4-4f0c-8e2a-2b9784ac2965)
---
+
 
 他曾多次被寺院及尼泊爾博物館邀請作壁畫、唐卡繪畫及修復佛像等藝術工作，現時亦為尼泊爾菩薩寺學校之唐卡導師。
 Kesav對唐卡的見解及他的遠景時，他很堅定的說：
